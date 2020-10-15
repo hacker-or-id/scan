@@ -1,0 +1,2 @@
+# scan
+{{scan|tools|software|headware|progress|open|template|log|log|log|softwaretool|}}{[[:wikt:Scan|log scan]]}. #[[:wikt:log scan|log copyright]]. *[[:wikt:log is log|log]]. *[[:wikt:log scan|txt]]. *[[:wikt:log scan|png]]. *[[:wikt:log scan|image image image/category user/category is /category talkname/category username/category done/category in progress/category open]]. -------------------------------------------------------------------------------------------------------------
